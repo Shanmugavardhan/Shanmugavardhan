@@ -9,5 +9,5 @@
 - 🎵 Carnatic Musician | Tech Enthusiast | Lifelong Learner  
 
 ## 🔗 Let's Connect!  
-📬 Reach me on [LinkedIn](www.linkedin.com/in/shanmuga-vardhan5)  
-📂 Check out my projects on [GitHub](https://github.com/Shanmugavardhan)
+📬 Reach me on [LinkedIn](https://www.linkedin.com/in/shanmuga-vardhan5/) and 𝕏 [Twitter](https://x.com/Shanmugashannu)
+
